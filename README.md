@@ -8,7 +8,7 @@ Some objections you may have
 
 1. What if my ideas are not refined? I need to draft before making stuff public.
 
-...We can pretend posts are pseudo-hidden as long as it is not linked to this README. Draft all you want then when's it's ready put a link to this front page.
+   We can pretend posts are pseudo-hidden as long as it is not linked to this README. Draft all you want then when's it's ready put a link to this front page.
 
 So the list only have one item. Who cares? It can be fixed later. Just like normal software.
 
