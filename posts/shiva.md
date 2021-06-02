@@ -1,9 +1,0 @@
-# Shiva
-
-Một người đồng nghiệp người Malaysia gốc Ấn, một bác gái lớn tuổi thì đúng hơn. Khi nhìn thấy tôi hơi thơ thẩn nhìn theo một đồng nghiệp nữ ở ngoài văn phòng, thì xếp xong bộ hồ sơ quay sang nhìn tôi cười, nói đại ý: Thích lắm chứ gì? Cảm thấy bị đánh trúng tim đen, tất nhiên tôi không nhận. Cô chỉ cười và nói, tôi sống với mấy ông anh từ bé rồi, lũ con trai các cậu nghĩ gì, tôi lại chả rành quá! Thực bụng lúc đó, trong tôi cảm thấy được... thấu hiểu vô cùng.
-
-Tôi vẫn nhớ rất rõ tên của cô. Đó là vì được cô giải thích ý nghĩa của nó. Người Ấn Độ thường đặt tên theo các vị thần, trong đó có thần Shiva. Shiva là tên nam, nên khi đặt cho nữ giới, người ta thêm chữ gami để phân biệt. Nên tên cô là Shivagami. Tôi thấy rất thích cái chi tiết đó, nên định bụng sẽ khắc cốt ghi tâm để không quên người đã chỉ điều đó cho mình.
-
-Rồi trong một câu chuyện đang hồi vui vẻ nào đó khi chúng tôi nhìn ra dãy đèn neon sáng trắng làm bạn phải nheo mắt trên trần văn phòng, cô lại không hỏi mà rằng: Cậu thấy những bóng đèn kia không? Nó chạy bằng gì? Tôi trả lời bằng điện. Cậu có thấy được dòng điện đó không? Không. Còn ánh sáng? Tôi thấy. Rồi cô nói: Cha tôi hay kể với tôi như vậy đó. Chúa cũng như vậy. Ta không thấy được ngài, nhưng ngài vẫn ở quanh ta, tạo ra ánh sáng cho ta. Đó là một cảm giác lý thú khi mắt bạn mải dõi theo những ánh đèn và tai bạn nghe những thông điệp như lời dặn dò cha nói với con.
-
-Người đồng nghiệp đó giờ tôi không nhớ rõ mặt. Nhưng tôi cảm thấy rất cảm ơn vì để lại một trải nghiệm tốt trong đời. Rốt cuộc thì sự đến và đi thoáng chốc đó là gì? Không ai có thể biết được, nhưng ít nhất một hệ quả mà tôi thấy hài lòng là mình có thiện cảm với đồ ăn Ấn Độ (không nhiều người bạn của tôi chia sẻ điều này!). Tôi thì cứ sẽ nghĩ đó là phúc lớn của mình, được hẳn một thần thánh phương nào đến đây để cảm hóa. Thôi thì ta cứ tin vào cái gì làm ta thích thú nhất vậy.
