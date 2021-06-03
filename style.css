@@ -1,5 +1,4 @@
-/* cyrillic-ext */
-@import url(https://fonts.googleapis.com/css?family=Alegreya);
+@import url('https://fonts.googleapis.com/css2?family=Alegreya&family=Karma:wght@500&display=swap');
 html {
   line-height: 1.5;
   font-family: 'Alegreya', serif;
