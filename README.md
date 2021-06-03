@@ -6,4 +6,4 @@
    data-tld="com"
    onclick="window.location.href = 'mailto:' + this.dataset.name + '@' + this.dataset.domain + '.' + this.dataset.tld; return false;"></a>
 
-- [Shiva](posts/shiva.html)
+- [Shiva](posts/shiva)
